@@ -1,2 +1,361 @@
-# versek
-A Folyó nevű iPhone-app verses melléklete. Innen tölthető le: https://apps.apple.com/hu/app/id6736395120
+Ez a Folyó nevű iPhone-app verses melléklete. Maga az app innen telepíthető:  
+https://apps.apple.com/hu/app/id6736395120  
+
+---  
+
+A harmincas években jár a halál.  
+Mindenkit elvisz, kit ebben talál.  
+Elment a tízes, elment a húszas év,  
+Csak David Attenborough van velünk még.  
+
+Felkészül a negyven, majd eljön az ötven:  
+Anyámat temethetem majd el közben.  
+(Apám már rég halott, habár még él,  
+Fideszes maradt, és a kérdésektől fél.)  
+
+Szvjatlana negyvennyolc, hetvenhét éves,  
+Csernobil sem tudta visszavetni ezt.  
+Túl van már a koron, az most ötvennél jár,  
+Az azutániaknál még korai a halál.  
+
+Lehet, hogy kissé felgyorsult a jelen,  
+Így bár lassabban, de fixen jön mögöttem.  
+Felkészül. Lassulhat, de soha meg nem áll,  
+Míg egyszer engem is a tizedben talál.  
+
+_2025. november 16._  
+
+---  
+
+Felébredt az emlék,  
+szürke elmék engedték  
+drogozván besorozva magukat.  
+Szürke akták nyíltak ki sorban,  
+bemondták a rádióban.  
+A szürkeségből szétváltak a színek,  
+jobbra-balra tőlem árván álló sínek.  
+Vonul a vonatom a szürke éjszakában.  
+És az jár a fejemben egyre erősebben:  
+egy hajnal, egy reggel?  
+Éjjel két óra hetven.  
+És életre kelt az emlék.  
+Újra és újra mennék.  
+Reggel volt már: a szabadság!  
+Tartózkodik a jóság.  
+Tartózkodjunk mi is, ha lehet -  
+idézzünk föl szép emlékeket!  
+
+_2011._  
+
+---  
+
+Ezzel jött haza Bálint a kórházból,  
+Ezzel fuvaroztam Rékát, a hóhányót.  
+Vittem a biciklit. A bicikli marad!  
+Amit kétszer loptak el egy hónap alatt.  
+
+Ment, mint a rakéta!  
+A kasznit nap szítta.  
+Az akkut zabálta.  
+
+Állt, és állt, csak várta,  
+Hogy valaki rátaposson a gázra.  
+De senkit sem hozott már lázba.  
+
+Hányszor költöztem vele!  
+Cuccaimmal volt tele.  
+De most végre elvitték.  
+Ez így mégis könnyebbség.  
+
+_2025. augusztus 12._  
+
+---  
+
+Benned az ítélő,  
+céloz és lő,  
+itt, a szívedben, itt él ő,  
+a feketén fénylő.  
+
+De nem ítélheted el  
+azért, mert elemel.  
+Ítéld el magad,  
+aki megtagad  
+minden segítséget.  
+Tanácsot sem kértek,  
+minek mondod a magadét?  
+A gyermeke léte a tét.  
+
+Vedd hát elő a kedves mosolyod,  
+mert van, aki az életéért lop,  
+ha máshogy nem megy, legalább  
+szeresd őt, és ne alázd!  
+
+_2025. július 31._  
+
+---  
+
+Benned az öröm, mert beléd ömlött,  
+öt ötlettől öntve öt ős-örömöt:  
+két kezed az első, egy meg a száj,  
+egy az élet kapuja, egy a halál.  
+
+Így vagyunk hatan, mi, az örömök és te,  
+ki egy kicsit korábban, ki pedig késve.  
+És így vagyunk mi teljes, mert a hexagon  
+lefedi a síkot. Le. Nagyon.  
+
+Az öröm a végtelen tengernek síkja,  
+hullámzik a bárkánk, amíg csak bírja.  
+Lent és fent, a hullám akadály,  
+jó akkor is, ha az öröm maga fáj.  
+
+És ha benned az öröm szétárad,  
+teljes testednek mindent átad,  
+akkor te is sugárzod a mennyei örömöt,  
+ami hol megvan, hol pedig megszökött.  
+
+_2025. július 8._  
+
+---  
+
+Benned az erő, a gyötrelmes erő.  
+Csigaházából a remény jön elő.  
+A téged ért veszteség felfoghatatlan.  
+Szemedben mégis a kitartás csillan.  
+
+Látszólag hullámok harcolnak hátadba vágva,  
+De minden erőlködésük ellened hiába.  
+Te vagy a győztes most még legbelül,  
+De hogy te győztél, ez mindjárt kiderül.  
+
+A remény éltessen, a harcot vidd tovább,  
+Jöhetnek szembe seregnyi katonák,  
+Előtted mindig, mindig az lebegjen:  
+Kik vagytok ti? Én már úgyis nyertem!  
+
+_2025. július 6._  
+
+---  
+
+Ha támadnak a kérdéseikkel,  
+a balhét is te vidd el.  
+Hordozd a terhét mindegyiknek,  
+ne félj, ha jönnek a kétségek.  
+
+Hogy össze se roskadsz a teher alatt,  
+jusson eszedbe ez a gondolat:  
+Ki az, aki a valódi támasz,  
+kinek a nevében naponként fáradsz?  
+
+Jól döntöttél, hogy a múlt helyett  
+a jövőre fekteted életed.  
+De ne feledd: a szeretet  
+kiűzi a teljes félelmet.  
+
+Engedd el azt, amitől rettegsz,  
+hiszen veled csak az történhet meg,  
+ami előre elrendezett,  
+ennél se több, se kevesebb.  
+
+Mert merre tart az életünk?  
+Mennyire volt tervszerű,  
+ami eddig volt és eztán lesz?  
+Ki az, aki alkot, ki az, aki tervez?  
+
+Csak a kijelölt ösvényen járj,  
+bármilyen keskeny, bármennyire fáj.  
+Félelmet ne keltsen semmi sem,  
+mert körötted teljes a védelem.  
+
+_2012. június 8._  
+
+---  
+
+Nézem az órát, körbe, ahogy megy: múlnak a percek,  
+jönnek az órák, szállnak az esték, vége a hétnek,  
+új hónappal itt a fizetség: költeni kéne,  
+ám tovaszállt ez az év, mire észbe kapok, hogy a vége  
+
+pont ugyanaz még mindig, ismétlődnek a dolgok.  
+Mókus a zárt kerekében mért nem lesz sose boldog?  
+Jönnek a tervek, az álmok. A vágyakról sose szólok,  
+mert még terveim állnak sorban: győzzön a fontos.  
+
+_2012. június 13._  
+
+---  
+
+Nézz, csak előre nézz,  
+az utat nézd, amerre mész,  
+a múltat, a bút, a dühöt,  
+a csüggedtséget hagyd magad mögött!  
+Azzal törődj, aki él,  
+most nyár van, rég elmúlt a tél,  
+engedd a jó időt a szívedbe,  
+hadd legyek a kedvedre!  
+
+Azt nézd, ahogy süt a nap,  
+a sok jót az ég alatt,  
+a szépségedet, amit kaptál,  
+mert te szebb vagy a napnál.  
+Mulass, ne tétovázz,  
+lépj már, lépj tovább!  
+
+_2012. május 30._  
+
+---  
+
+Ez lesz az első péntek.  
+De miért a hétnek  
+ez a napja lett, hogy  
+a szemedbe nézzek?  
+Nem félek már látni téged:  
+megérintenélek, megölelnélek.  
+És tényleg.  
+Mivé lettek a tüntetések?  
+Ez a hét így fél lett.  
+Bejárod a vidéket!  
+A chat az enyészeté lett.  
+De nem bánom! Csak ez most  
+valahogy hiányos  
+lesz, ez a péntek.  
+
+_2006._  
+
+---  
+
+Ha itt lennél és átölelnélek,  
+ahogy lélegzik a lélek,  
+karomba kérnélek, szorosan,  
+még a múlt is megmoccan:  
+elsöpri a tizenkét évet,  
+elfújja, mind a jelenné lett,  
+és érezném, ahogy lassan  
+átkarolván az álmod hallgassam,  
+ahogy egy rezzenéssel elszundít a tested.  
+És én itt lennék közel, melletted.  
+
+_2011. december 20._  
+
+---  
+
+Amúgy slam költő nem leszek.  
+De neked írok majd verseket!  
+Túl kötött és elő is kell adni.  
+Én az írásnál fogok maradni.  
+
+De majd ha találkozunk legközelebb,  
+Miután végre megölellek,  
+És megint a hajadhoz ér az orrom,  
+A füledbe súgom.  
+
+Nem kell pulóver, kabát,  
+Majd én leszek az a jó barát,  
+Aki, ha fázol, átmelegít,  
+Majd ha találkozunk megint.  
+
+_2011. október 14._  
+
+---  
+
+Láttam egy lányt a Tescoban, azt hittem, te vagy.  
+Úgy, mint arra, aki szembejött velem tegnap.  
+Nézem az új, gyönyörű profilképedet,  
+a szívem ilyenkor szomorúan remeg, mert nem lehet.  
+
+Egy hete még a csillagos ég,  
+Szék, moldva majd mezőség,  
+Lassan egymáshoz bújva, simulva,  
+majd jött a csárdás, a szapora.  
+
+És jött az égből a földre esés,  
+a napokon át tartó vívódó remegés,  
+és földet érvén a tekintetem az égre emelem.  
+A hold világít a csillagos égen.  
+
+És talán te is most a holdat nézed,  
+egy hete még csak kis sarlóként vitézlett.  
+Most megszedte magát, a hasa dundi lett.  
+Csak néz le rám, és ő is csak kinevet.  
+
+És ahogy kell, úgy kell, és mondd,  
+miért lettem neked friendzoned?  
+Tényleg csak a papír, ami nem más, mint jelkép,  
+ami nélkül is simán élvezi mindenki a testét?  
+
+De ami megléte ugyanígy semmit sem jelent.  
+Csak egy adminisztrációs hibát, egy véletlent.  
+A hibát feloldom, a probléma nem lesz.  
+Szeretlek. De vajon te tényleg ezért nem szeretsz?  
+
+_2011. június 2._  
+
+---  
+
+Mindenkiről azt hiszem, aki szembejön,  
+aki az utcán sétál, aki a boltban rám köszön,  
+aki fordul a szélben és szoknyája libben,  
+hogy te vagy az, te vagy itt valahogy éppen.  
+
+De elmegy a pillanat, csak a felismerés marad,  
+hogy a gondolataim megint a szívemmel játszanak.  
+És hogy mennyi minden tud történni egy hét alatt.  
+
+Tart még az őszinte óra?  
+Én még nem tettem le róla.  
+Hideg volt a búcsúzóra.  
+Miért is vártam még egy csókra?  
+
+De megértem, hogy nem lehet, hogy te így nem szeretsz.  
+Amim van, az hendikep, nem leszek jó neked.  
+Ha kettőnek nem lehet, legyen csak egynek,  
+mert én tiszta szívből pontosan szeretlek.  
+
+_2009. szeptember 9._  
+
+---  
+
+Szeretnék valakivel összebújni éjszakánként  
+Akibe szerelmes vagyok, nem is megy másként.  
+A hajába túrom az orrom,  
+Illatától megfosztom,  
+Belélegzem mélyen a tüdőre.  
+Hozzáér a bőrömhöz a bőre.  
+
+Szeretnék melletted felébredni,  
+Minden madár ezt énekli.  
+Felriadunk rigószóra,  
+Az lenne a boldog óra.  
+
+De nem mindegy, ki mellett fekszem,  
+Mindig a helyemet kerestem,  
+Csak az a jó, ha te vagy mellettem.  
+
+De ki vagy? Kivagyok. Barátom, szerelmem?  
+Tavasszal lebegő test nélküli szellem?  
+A tudat? Egy csók? Elengedlek lassan.  
+Elég, ha én vagyok benne a szarban.  
+
+_2008. június 16._  
+
+---  
+
+Szemedben az éj kékje, a tenger zöldje,  
+minden erős, és semmi sem gyönge.  
+Ruhádban a nyár, a szerelem szigete.  
+Alakod álomba úsztat, ezt hiszed-e?  
+
+Hiába hunytam le a szemem  
+a lenyugvás közben.  
+Ugyanúgy ültél szemben  
+velem, csak zöldben.  
+
+És csaltam, mert lestem, a résen kerestem.  
+Még a székről is majdnem leestem.  
+
+És estemben este lett,  
+most itt fekszem a földön.  
+Nyílt egy verem velem szemben,  
+és beleestem rögtön.  
+
+_2005. május 3._  
