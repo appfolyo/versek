@@ -1,6 +1,31 @@
 Ez a Folyó nevű iPhone-app verses melléklete. Maga az app innen telepíthető:  
 https://apps.apple.com/hu/app/id6736395120  
 
+---
+
+Milyen lehet veled összebújni éjszakánként?  
+Hajad az arcomon vízfolyásként,  
+Csak úszom szembe az árral,  
+Nem törődöm a fiatalsággal.   
+
+A kor az úgyis csak egy érzet.  
+Alszol szépen és én téged nézlek.  
+Te fölöttem állsz, én vagyok az apró,  
+A talppal eltiprandó cipőt sem érő tapló.  
+
+Kettesben voltunk és izzott a levegő,  
+Az ajándékot is miért vettem elő?  
+Csak hagyni kellett volna a lángnak, hogy égjen,  
+Ehelyett én megijesztettelek szépen.  
+
+És most töröm a fejem, hogy hol rontottam el,  
+De mit is képzelhet egy ilyen agg ember,  
+Mint a királylány és a szegény legény.  
+Bolond, aki a mesékben él.  
+
+Bolond vagyok, ezt elismerem:  
+Megbolondított a szerelem.  
+
 ---  
 
 A harmincas években jár a halál.  
@@ -23,8 +48,6 @@ Lehet, hogy kissé felgyorsult a jelen,
 Felkészül. Lassulhat, de soha meg nem áll,  
 Míg egyszer engem is a tizedben talál.  
 
-_2025. november 16._  
-
 ---  
 
 Felébredt az emlék,  
@@ -44,8 +67,6 @@ Reggel volt már: a szabadság!
 Tartózkodik a jóság.  
 Tartózkodjunk mi is, ha lehet -  
 idézzünk föl szép emlékeket!  
-
-_2011._  
 
 ---  
 
@@ -67,8 +88,6 @@ Cuccaimmal volt tele.
 De most végre elvitték.  
 Ez így mégis könnyebbség.  
 
-_2025. augusztus 12._  
-
 ---  
 
 Benned az ítélő,  
@@ -89,8 +108,6 @@ Vedd hát elő a kedves mosolyod,
 mert van, aki az életéért lop,  
 ha máshogy nem megy, legalább  
 szeresd őt, és ne alázd!  
-
-_2025. július 31._  
 
 ---  
 
@@ -114,8 +131,6 @@ teljes testednek mindent átad,
 akkor te is sugárzod a mennyei örömöt,  
 ami hol megvan, hol pedig megszökött.  
 
-_2025. július 8._  
-
 ---  
 
 Benned az erő, a gyötrelmes erő.  
@@ -132,8 +147,6 @@ A remény éltessen, a harcot vidd tovább,
 Jöhetnek szembe seregnyi katonák,  
 Előtted mindig, mindig az lebegjen:  
 Kik vagytok ti? Én már úgyis nyertem!  
-
-_2025. július 6._  
 
 ---  
 
@@ -167,8 +180,6 @@ bármilyen keskeny, bármennyire fáj.
 Félelmet ne keltsen semmi sem,  
 mert körötted teljes a védelem.  
 
-_2012. június 8._  
-
 ---  
 
 Nézem az órát, körbe, ahogy megy: múlnak a percek,  
@@ -180,8 +191,6 @@ pont ugyanaz még mindig, ismétlődnek a dolgok.
 Mókus a zárt kerekében mért nem lesz sose boldog?  
 Jönnek a tervek, az álmok. A vágyakról sose szólok,  
 mert még terveim állnak sorban: győzzön a fontos.  
-
-_2012. június 13._  
 
 ---  
 
@@ -201,8 +210,6 @@ mert te szebb vagy a napnál.
 Mulass, ne tétovázz,  
 lépj már, lépj tovább!  
 
-_2012. május 30._  
-
 ---  
 
 Ez lesz az első péntek.  
@@ -220,8 +227,6 @@ De nem bánom! Csak ez most
 valahogy hiányos  
 lesz, ez a péntek.  
 
-_2006._  
-
 ---  
 
 Ha itt lennél és átölelnélek,  
@@ -234,8 +239,6 @@ elfújja, mind a jelenné lett,
 átkarolván az álmod hallgassam,  
 ahogy egy rezzenéssel elszundít a tested.  
 És én itt lennék közel, melletted.  
-
-_2011. december 20._  
 
 ---  
 
@@ -253,8 +256,6 @@ Nem kell pulóver, kabát,
 Majd én leszek az a jó barát,  
 Aki, ha fázol, átmelegít,  
 Majd ha találkozunk megint.  
-
-_2011. október 14._  
 
 ---  
 
@@ -288,8 +289,6 @@ Csak egy adminisztrációs hibát, egy véletlent.
 A hibát feloldom, a probléma nem lesz.  
 Szeretlek. De vajon te tényleg ezért nem szeretsz?  
 
-_2011. június 2._  
-
 ---  
 
 Mindenkiről azt hiszem, aki szembejön,  
@@ -310,8 +309,6 @@ De megértem, hogy nem lehet, hogy te így nem szeretsz.
 Amim van, az hendikep, nem leszek jó neked.  
 Ha kettőnek nem lehet, legyen csak egynek,  
 mert én tiszta szívből pontosan szeretlek.  
-
-_2009. szeptember 9._  
 
 ---  
 
@@ -336,8 +333,6 @@ Tavasszal lebegő test nélküli szellem?
 A tudat? Egy csók? Elengedlek lassan.  
 Elég, ha én vagyok benne a szarban.  
 
-_2008. június 16._  
-
 ---  
 
 Szemedben az éj kékje, a tenger zöldje,  
@@ -357,5 +352,3 @@ Még a székről is majdnem leestem.
 most itt fekszem a földön.  
 Nyílt egy verem velem szemben,  
 és beleestem rögtön.  
-
-_2005. május 3._  
