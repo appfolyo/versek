@@ -3,6 +3,26 @@ https://apps.apple.com/hu/app/id6736395120
 
 ---
 
+Te vagy a tavasz, én vagyok a nyár.  
+Nálam a Nap már délen áll.  
+Tiéd a jövő, enyém a jelen,  
+Mert messze van még tőlem a telem.  
+
+De ha nyárba érsz, enyém lesz az ősz,  
+A tél is engem hamarabb legyőz.  
+Egymást utolérni sose fogjuk.  
+Egymás kezét sose fogjuk.  
+
+Téged nézlek: a tavaszom látom,  
+Mikor kinyílt az első hóvirágom.  
+Ha magamat nézem a nyár derekán:  
+Sohasem leszek tavaszi már.   
+
+De mikor eljön az örök tavasz,  
+Mindkettőnknek az lesz a vigasz. Igaz.  
+
+---
+
 Milyen lehet veled összebújni éjszakánként?  
 Hajad az arcomon vízfolyásként,  
 Csak úszom szembe az árral,  
