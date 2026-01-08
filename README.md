@@ -1,5 +1,30 @@
-Ez a Folyó nevű iPhone-app verses melléklete. Maga az app innen telepíthető:  
-https://apps.apple.com/hu/app/id6736395120  
+Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verses melléklete.  
+  
+
+---
+
+Utam szélén red flag.   
+Nem érdekel, edd meg!  
+Világít a red alert.   
+Vinnyognia nem ma kell!  
+Ég a mennyezet,  
+Vele is szelfizek.   
+Magamat megégetem,  
+De ez pont nem érdekel.   
+  
+Hanem hogy miért vonz, miért vonz az örök veszély?  
+Közben eltűnt, eltűnt már minden remény.   
+Sohasem leszel már az enyém.   
+  
+De miért mindig ez az én utam,  
+Minden rajtnál ugyanaz a futam?  
+Csicskáztattak már eddig vagy húszan.   
+  
+De a rabszolga fölkelt, itt a vég!  
+Rabszolgasorsból ennyi épp elég.   
+  
+Engem elveszíteni többé nem lehet,  
+Mert tulajdona már nem leszek senkinek!  
 
 ---
 
