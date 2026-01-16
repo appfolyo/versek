@@ -1,5 +1,19 @@
 Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verses melléklete.  
   
+---
+
+### Heinrich Heine: Es liegt der heiße Sommer ###   
+_fordítás_  
+
+Fiatal vagy,  
+Tiéd az élet.   
+A szíved csak,  
+Amitől tél lett.   
+  
+De elmúlik a nyár,  
+Kihűl az élet.  
+A szíved akkor már  
+Felenged végleg.   
 
 ---
 
