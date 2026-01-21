@@ -1,5 +1,27 @@
 Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verses melléklete.  
+
+---
+
+Pillanatkép az életed,  
+Az időt egybe fűzve látom.   
+A valóság a jelen,  
+A jövő még csak álom.   
   
+Kimerevedett a kép,  
+Megállt az idő,  
+Mozdulatlanságban szép  
+A közelgő jövő.   
+  
+Először egy ezüst szál,  
+És picike barázda.  
+Jaj, mit szól a száj!  
+Még a jelenbe vagy zárva.   
+  
+Kit érdekel, mi lesz?  
+Csak azt nézem, ami most van.   
+És a szépséged ez,  
+Melytől a szívem belobban.   
+
 ---
 
 ### Heinrich Heine: Es liegt der heiße Sommer ###   
