@@ -2,6 +2,36 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Életedben csak egy barát voltam?  
+Hát az a csók a padon hol van?  
+Nem a semmi, amit én akartam.  
+  
+Ízét még most is a számban érzem,  
+Ha sétálok kint a hideg télben,  
+Nem mulasztja a hóesés sem.   
+  
+Mert az nyár volt, örök nyár,  
+Nem lesz már sohasem homály,  
+Ami akkor nekem ott voltál.   
+  
+De közbejött a nagy Ő, az Ex,  
+“Na, ebből sem lesz semmi szex.”  
+Hogy így lett, erről te tehetsz.  
+  
+Persze, hogy számonkértelek,  
+Mi volt, mi van, mi lesz köztetek,  
+Csalódott voltam, az lehet.  
+  
+Sosem beszéltük át a problémát,  
+Sosem volt erre egy-két órád,  
+Ezért lettem én is csak barát.  
+  
+De ezt nem én akartam így!  
+Vagy barátság, vagy a semmi.  
+Mert a többhoz többet kell tenni.  
+
+---
+
 Pillanatkép az életed,  
 Az időt egybe fűzve látom.   
 A valóság a jelen,  
