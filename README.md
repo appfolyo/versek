@@ -28,7 +28,7 @@ Ezért lettem én is csak barát.
   
 De ezt nem én akartam így!  
 Vagy barátság, vagy a semmi.  
-Mert a többhoz többet kell tenni.  
+Mert a többhöz többet kell tenni.  
 
 ---
 
