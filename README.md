@@ -2,6 +2,18 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+A walkmanezésről van egy emlékem.   
+Tizenkét éves lehetek éppen.   
+Hallgatom a zenét, kint nem hallok semmit.   
+Az ajtó mellett ülök. Anyám benyit.   
+  
+Ránézek, a fejemre sóz egy nagyot.   
+Nem értem, ütést most miért kapok?  
+Kiderült, rég ott várnak az asztalnál.   
+“Hívtunk enni, de semmit sem hallottál.”  
+
+---
+
 Életedben csak egy barát voltam?  
 Hát az a csók a padon hol van?  
 Nem a semmi, amit én akartam.  
