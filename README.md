@@ -2,6 +2,23 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Bal kezedben a nap, a jobban én vagyok.  
+Táncolnak köröttünk a csillagok.  
+Suhanunk körbe, forgunk egy éven át,  
+Csak ropjuk a holddal az éjszakát.  
+
+Ahogy a lépések ritmusa soha meg nem áll,  
+úgy keringünk a csillagfényen át.  
+Láttunk tengernyi bolygót. Habár  
+Táncunkat semmi sem bolygatja már.  
+
+Mert ez csak kettőnké, a tiéd, az enyém.  
+Ami életben tart most, az a remény,  
+Hogy márciusban újra együtt járjuk át  
+A holdfénnyel töltött táncos éjszakát.  
+
+---
+
 A walkmanezésről van egy emlékem.   
 Tizenkét éves lehetek éppen.   
 Hallgatom a zenét, kint nem hallok semmit.   
