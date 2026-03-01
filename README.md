@@ -2,6 +2,23 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Hazudnék, ha azt mondanám, ilyet még nem éltem át.  
+Tizenöt éve volt egy lány, egy táncházas barát.  
+Nem volt semmi köztünk, csak táncoltunk és ennyi.  
+A testünk viszont elkezdett egyszer mást üzenni.  
+
+Meglepetten néztük, és váltunk szét, de gyorsan.  
+Mi történik köztünk, az éles határ hol van?  
+De ez most más, már eltelt tizenöt év.  
+Nem csak mint barát forgattalak magam mögé.  
+
+A hatása már szüntelen egy hete kitart.  
+Mást nem lehet, csak számolom, ez nem lesz egyhamar.  
+Hogy újra átélhessem ugyanazt a csodát.  
+Hogy biztos lehessek végre, több vagy, mint egy barát.  
+
+---
+
 Bal kezedben a nap, a jobban én vagyok.  
 Táncolnak köröttünk a csillagok.  
 Suhanunk körbe, forgunk egy éven át,  
