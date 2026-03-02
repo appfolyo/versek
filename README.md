@@ -2,6 +2,23 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Húzzák füzesünk egyből minekünk,  
+Ének dala szól, táncunk haladó,  
+Falut át ugrunk, Széken járunk,  
+A Palatkánknak is adunk párat.  
+
+Széken lesz más: lassú csárdás,  
+Ölelünk, egymást. Nem csak ez a tánc:  
+Szívem kalapál, ritmust kiabál.  
+És szólsz: a karom — láz volt az izom.  
+
+Így már hiszem én, mért volt csodaszép,  
+A nehéz munkát te viszed duplán.  
+Most már figyelek, ismét ha lehet  
+Táncolni veled. Nap még tizenegy.  
+
+---
+  
 Hazudnék, ha azt mondanám, ilyet még nem éltem át.  
 Tizenöt éve volt egy lány, egy táncházas barát.  
 Nem volt semmi köztünk, csak táncoltunk és ennyi.  
@@ -19,10 +36,10 @@ Hogy biztos lehessek végre, több vagy, mint egy barát.
 
 ---
 
-Bal kezedben a nap, a jobban én vagyok.  
+Bal kezedben a Nap, a jobban én vagyok.  
 Táncolnak köröttünk a csillagok.  
 Suhanunk körbe, forgunk egy éven át,  
-Csak ropjuk a holddal az éjszakát.  
+Csak ropjuk a Holddal az éjszakát.  
 
 Ahogy a lépések ritmusa soha meg nem áll,  
 úgy keringünk a csillagfényen át.  
