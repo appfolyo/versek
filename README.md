@@ -2,6 +2,20 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Az emlékek megkopnak, az alvás visszaáll.  
+Az üzeneteket nézem, de talán hiába már:  
+Ott tőled egy új mondat, de szó se vár.  
+De minek is írni, mégis mit üzenjek át?  
+Hogy mulassunk át együtt még egy éjszakát?  
+  
+De miért us írjunk, hogy kapcsolat legyen?  
+A programjaink már megvannak fixen.   
+Mégis, miért nem jön a válasz?  
+Azt hittem, te más vagy.   
+Keress mást, akivel játszhatsz. 
+
+---
+
 Húzzák füzesünk egyből minekünk,  
 Ének dala szól, táncunk haladó,  
 Falut át ugrunk, Széken járunk,  
