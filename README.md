@@ -2,6 +2,22 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Ez egy két pólós próba.  
+Ő egy négy verses lány.  
+Hogyha szabad volna  
+A péntek éjszakám,  
+Ezres lenne egy tánc,  
+Vagy csak kilencszáz.  
+
+Az út közel egy óra,  
+A benzin ki tudja, mennyi,  
+És ez még csak oda,  
+Vissza is kell menni.  
+Fárasztó próba után,  
+De vonz az öt verses lány.  
+
+---
+
 Az emlékek megkopnak, az alvás visszaáll.  
 Az üzeneteket nézem, de talán hiába már:  
 Ott tőled egy új mondat, se szó se vár.  
