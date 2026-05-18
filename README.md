@@ -2,6 +2,23 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Négy négyzetméter az életterem,  
+Egy fél asztal, egy ágy, és köztük egy verem.  
+Megszállták a házam, a lelkem,  
+Lépten-nyomon kutyaszar a telken.  
+
+Ami az otthonomnak indult egykor,  
+Ma a ház sarkába mutató vektor.  
+Egy nyíl, hogy nézd csak, ez a tiéd,  
+állni, feküdni, ülni épp elég.  
+
+Kuporgok magamban itt a sarokban,  
+mint a ketyegő bomba, mielőtt robban.  
+Összenyomtak, megaláztak, senkivé tettek.  
+Otthonom nincs már. Újat kell keressek.  
+
+---
+
 Ez egy két pólós próba.  
 Ő egy négy verses lány.  
 Hogyha szabad volna  
