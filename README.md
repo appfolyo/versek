@@ -270,6 +270,8 @@ Lehet, hogy kissé felgyorsult a jelen,
 Felkészül. Lassulhat, de soha meg nem áll,  
 Míg egyszer engem is a tizedben talál.  
 
+(2025)  
+
 ---  
 
 Felébredt az emlék,  
