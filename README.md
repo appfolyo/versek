@@ -2,6 +2,29 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Nem tudom, mi volt ez,  
+Miért jutsz az eszembe,  
+Nem tudom, meddig lesz,  
+Hogy ilyenkor kezembe  
+Tollat, vagyis billentyűt, sőt, mobilt ragadok,  
+Hogy pötyögve kívánjak boldog születésnapot!  
+
+Nyilvános adat ez,  
+Hogy miért lett az, nem tudom,  
+De bárki rákereshet  
+A Wikipédia oldalon.  
+Én is onnan vettem e jeles adatot,  
+Így tudok kívánni boldog születésnapot.  
+
+De azt még nem tudom,  
+Hogy ezt évente miért teszem,  
+Nincsen a mobilon  
+Erről egy reminderem.  
+Csak eszembe jutsz, amikor eljön a napod:  
+Kívánok még sok-sok boldog születésnapot!
+
+---
+
 Négy négyzetméter az életterem,  
 Egy fél asztal, egy ágy, és köztük egy verem.  
 Megszállták a házam, a lelkem,  
