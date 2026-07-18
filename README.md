@@ -2,6 +2,23 @@ Ez a [Folyó nevű iPhone-app](https://apps.apple.com/hu/app/id6736395120) verse
 
 ---
 
+Egy Wikipédia-oldalt köszöntöttem fel,  
+A „köszönöm” már jött is gyorsan, ahogyan ezt kell,  
+Pár sor tele érdeklődő kérdésekkel.  
+A viszontkérdéseimre, ahogy szokott, nem felel.  
+
+Mindig ez van, én írok, ő gyorsan ír vissza,  
+Úgy tűnik, mint aki a szavaimat issza,  
+Írok hát bővebben, ez eddig tiszta,  
+Ezután várhatok, mert válasza nyista.  
+
+A megoldás, úgy tűnik, több, mint egyszerű,  
+Csak ne legyél mindig ennyire együgyű,  
+Nem szabad írni se szót, se egy betűt,  
+Ha úgy látod, az oldal teljesen meghülyült.
+
+---
+
 Nem tudom, mi volt ez,  
 Miért jutsz az eszembe,  
 Nem tudom, meddig lesz,  
